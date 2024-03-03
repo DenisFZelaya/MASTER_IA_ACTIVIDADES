@@ -14,7 +14,7 @@ Las respuestas que tengo de la 2nda actividad de AA.
 Resultados DFZ
 1. B
 2. A
-3. C o D
+3. D
 4. A
 5. D
 6. D
